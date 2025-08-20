@@ -1,4 +1,4 @@
-## Hi there 👋
+## Follow your plan not your mood. 👋
 
 <!--
 **MrExcellenttt/MrExcellenttt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
